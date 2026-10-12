@@ -16,4 +16,4 @@
 
 ---
 
-- fyi: got nobody to sit w 
+- fyi: old prof
